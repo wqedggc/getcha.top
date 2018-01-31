@@ -11,6 +11,6 @@
 * nothing serious to say 
 * everything is suck
 * next time I will upload a solvation of a simple task.
-* Don't expect much.
+* Don't expect too much.
 * hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 
